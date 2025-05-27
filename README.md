@@ -2,8 +2,8 @@
 - 👀 I’m interested in cybersecurity, intelligence, ethical hacking, coding, computers, networking, ML/AI, and softwares.
 - 🌱 Leading is a strength of mine, also love collaboration.
 - 💞️ I’m looking to collaborate on all types of projects and love leading them.
-- 📫 How to reach me DM's are the fastest way to reach me.
-- 😄 Pronouns: he/him/his/sir
+- 📫 To reach me personally, DM's are the fastest way to reach me.
+- 😄 Pronouns: My pronouns are he/him/his/sir.
 - ⚡ Fun fact: I love cybersecurity, intelligence, ethical hacking, coding, computers, networking, ML/AI, and softwares.
 
 <!---
