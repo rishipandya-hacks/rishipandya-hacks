@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rishipandya-hacks, my name is Rishi Pandya.
-- 👀 I’m interested in cybersecurity, intelligence, ethical hacking, coding, computers, networking, ML/AI, and softwares.
+- 👀 I’m an expert in cybersecurity, intelligence, ethical hacking, data science, soldering, electronics, gaming, coding, computers, networking, ML/AI, and softwares.
 - 🌱 Leading is a strength of mine, also love collaboration.
 - 💞️ I’m looking to collaborate on all types of projects and love leading them.
 - 📫 To reach me personally, DM's are the fastest way to reach me.
